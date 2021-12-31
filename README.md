@@ -5,5 +5,5 @@ Check me and my XC90 out here:
 - [IG](https://www.instagram.com/autozonetwink/)
 - [Reddit](https://www.reddit.com/user/AutozoneTwink)
 - [SwedeSpeed](https://www.swedespeed.com/members/autozonetwink.352473/)
-- Discord: 
+- Discord: AutozoneTwink#4014
 - Email: autozonetwink@gmail.com
