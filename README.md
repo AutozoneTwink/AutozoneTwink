@@ -3,7 +3,5 @@ Hey its Uninsured, or Motorist, or UM, or K, or whatever. Whichever works for yo
 I've got a decent amount of car stuff lying around here, lots of how-tos, almost solely for beginners.
 Check me and my XC90 out here:
 - [IG](https://www.instagram.com/UninsuredMotorist/)
-- [Reddit](https://www.reddit.com/user/AutozoneTwink)
 - [SwedeSpeed](https://www.swedespeed.com/members/autozonetwink.352473/)
-- Discord: AutozoneTwink#4014
-- Email: autozonetwink@gmail.com
+- Discord: UninsuredMotorist#4479
