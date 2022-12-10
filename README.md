@@ -1,7 +1,7 @@
-Hey its Uninsured, or Motorist, or UM, or K, or whatever. Whichever works for you.
+Hey it's Matcha, or Tea, or Racing, whicherver works for you!
 
 I've got a decent amount of car stuff lying around here, lots of how-tos, almost solely for beginners.
 Check me and my XC90 out here:
 - [IG](https://www.instagram.com/UninsuredMotorist/)
-- [SwedeSpeed](https://www.swedespeed.com/members/autozonetwink.352473/)
-- Discord: UninsuredMotorist#4479
+- [YouTube](https://www.youtube.com/channel/UCvfckFdfsHGBZAA3Wk3JIDQ)
+- [Website]()
